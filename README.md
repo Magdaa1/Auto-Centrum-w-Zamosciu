@@ -5,8 +5,6 @@
                   Tel: (+48) 692 43 65 66
                   
                   e-mail: autocentrumzamosc@gmail.com
-
-
 Dlaczego warto nas wybrać? 
 
 To miejsce, gdzie bez obaw możesz zostawić auto. Naprawimy wszytskie usterki i awarie. 
