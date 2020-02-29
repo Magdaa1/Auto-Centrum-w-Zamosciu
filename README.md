@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## 
               Profesjonalny warsztat samochodowy
                           ZAMOŚĆ
                   ZADZWOŃ I UMÓW WIZYTĘ:
@@ -8,7 +8,7 @@
                   
                   e-mail: autocentrumzamosc@gmail.com
 
-### Markdown
+### 
 
 Dlaczego warto nas wybrać? 
 
