@@ -7,6 +7,8 @@ Profesjonalny warsztat samochodowy w Zamościu. ZADZWOŃ I UMÓW WIZYTĘ:
               
               e-mail: autocentrumzamosc@gmail.com
               
+              Adres: Lubelska 27(należy wjechać na parking, znajdujemy się za Niedziałkiem), 22-400 Zamość
+              
 Dlaczego warto nas wybrać? 
 
 To miejsce, gdzie bez obaw możesz zostawić auto. Naprawimy wszytskie usterki i awarie. 
